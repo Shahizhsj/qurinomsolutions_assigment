@@ -1,0 +1,1 @@
+# qurinomsolutions_assigment
